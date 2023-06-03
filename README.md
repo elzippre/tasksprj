@@ -4,4 +4,3 @@
 
 `` schöne grüße``
 
-jetzt gehen wir heim....
